@@ -2,4 +2,4 @@
 
 NIM: 6706213064	
 
-Nama: Zulfi Muhamad Briza ALghifari
+Nama: Zulfi Muhamad Briza Alghifari
